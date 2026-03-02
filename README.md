@@ -1,1 +1,1 @@
-ten drugi jest poprawny
+
