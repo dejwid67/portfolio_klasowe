@@ -1,0 +1,1 @@
+ten drugi jest poprawny
